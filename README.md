@@ -1,3 +1,3 @@
-Nama : 
+Nama : Richard Christopher Suwandi
 
-NIM  :
+NIM  : D121181504
